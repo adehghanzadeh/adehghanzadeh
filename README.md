@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I've decided to change my username to [**@alerezaa**](https://github.com/alerezaa) on github, so you can find me [***here***](https://github.com/alerezaa)
+
+Also, I invite you to visit my personal website: **(https://alerezaa.ir)** and my blog **(https://blog.alerezaa.ir)**
+
 <!--
 **adehghanzadeh/adehghanzadeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
