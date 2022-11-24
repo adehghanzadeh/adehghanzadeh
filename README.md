@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I've decided to change my username to [**@alerezaa**](https://github.com/alerezaa) on github, so you can find me [***here***](https://github.com/alerezaa)
+I've decided to change my username to [**@alerezaaa**](https://github.com/alerezaaa) on github, so you can find me [***here***](https://github.com/alerezaaa)
 
 Also, I invite you to visit my personal website: **(https://alerezaa.ir)** and my blog **(https://blog.alerezaa.ir)**
 
